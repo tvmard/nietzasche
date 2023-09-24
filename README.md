@@ -1,2 +1,2 @@
-# nietzasche
+# nietzsche
 A ANGÚSTIA DE NIETZSCHE E A MORALIDADE HUMANA
